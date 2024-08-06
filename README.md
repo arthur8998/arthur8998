@@ -14,4 +14,4 @@
 
 Qualquer dúvida entre em contato
 <a href="silva.arthur29@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white&quot; target="_blank"/></a>
-![](https://media1.tenor.com/m/YLdlVwXjmRoAAAAd/santos-fc-angelo.gif)
+![]([https://media1.tenor.com/m/YLdlVwXjmRoAAAAd/santos-fc-angelo.gif](https://media1.tenor.com/m/OBbUAgMvizoAAAAC/baby.gif))
